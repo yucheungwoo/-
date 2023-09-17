@@ -14,6 +14,4 @@ ios 개발자
 web 개발자
 
  
-
-간단한 소개 부탁드립니다.
-icesuger248@gmail.com
+이력서 icesuger248@gmail.com으로 보내주시면 됩니다.
